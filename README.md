@@ -1,0 +1,62 @@
+# Chanmina – 花火
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Looking around I'm just looking around
+このままだと終わるわ
+扱えないの私じゃ
+Time is over 知らされても
+醜い日も飾ってるの
+時のせいになるその前に
+Fire 君が灯すの
+Fire fire
+*
+私、花火
+若い夜に
+つけられた火
+君を照らす
+私、花火
+長くはない
+若い夜を
+思い出してくれるかしら
+They say love is game
+I'm so tired baby
+だから少しここにいて
+火が消える事は知ってる
+君が裏切る事も期待してる
+古くなっても君は
+愛しく思うだろうか
+あの日の夜のように baby
+Fire 2人で灯した
+Fire fire
+君は花火
+すごく綺麗
+すぎて傍に
+いれるかしら
+君は花火
+ずっと傍に
+時が経てど
+私を気にかけて
+You make me fire you make me fire
+君の傍で笑ってた
+私を私を
+いつまでも忘れないで
+You make me fire you make me fire
+君に恋した少女は
+あの子はあの子は
+いつまでもここにいる
+いつの日か
+私が散って砂に乾いても
+愛してください
+君の傍でまた咲く
+*Repeat
+You make me fire you make me fire
+君の傍で笑ってた
+私を私を
+いつまでも忘れないで
+You make me fire you make me fire
+君が恋した少女は
+私は私は
+いつまでもここにいる
+```
